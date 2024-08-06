@@ -3,6 +3,10 @@
 
 Autores:
 
+Evelyn Carranza R.
+
+Gabriela Mejía R.
+
 Jose Daniel Brenes Hidalgo.
 
 Gabriel Guzmán O.
